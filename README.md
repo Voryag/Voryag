@@ -1,5 +1,5 @@
 # 💫 About Me:
-📚I'm currently learning
+📚I'm currently learning)
 
 ## 🌐 Socials:
 sha4iklein@mail.ru 
